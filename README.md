@@ -32,5 +32,6 @@ If our data practices change, we will update this Privacy Policy and the “Effe
 
 ## Contact
 If you have questions about this Privacy Policy, please contact:
-[Your Name or Company]
-[Contact email address]
+[AJS company]
+[alijey1@myself.com]
+
