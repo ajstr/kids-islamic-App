@@ -2,7 +2,7 @@
 Give your child a beautiful start with Kids Islamic App 
 # Privacy Policy for Kids Islamic App
 
-Effective date: [Month Day, Year]
+Effective date: [05 12, 2026]
 
 Kids Islamic App (“the App”) respects your privacy. This Privacy Policy explains how the App handles your information.
 
